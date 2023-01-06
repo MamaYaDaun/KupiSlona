@@ -1,1 +1,8 @@
 # KupiSlona
+
+
+Entertainment 
+
+Predstavlyaeyt 
+
+
